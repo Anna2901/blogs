@@ -1,6 +1,6 @@
 ---
 title: Important types of Health Insurance Policies available in Switzerland
-date: 2019-09-27 09:36:00 Z
+date: 2019-09-27 09:43:00 Z
 ---
 
 Health insurance plans are dynamic in nature. There are various branches of health insurance. Since an individual has different needs, each branch is designed to keep a particular need in mind. Each plan aims to fulfill the various needs of an individual. A health insurance plan helps an individual to share the financial risk associated with health. It is very important to select a plan which suits the requirement and affordability, as the premium charges depend on the required coverage of an individual. Therefore, it is essential to compare and select the best type of health insurance plan which suits an individual's preference. Below are some important types of health insurance plans available in Switzerland:
@@ -9,7 +9,7 @@ Health insurance plans are dynamic in nature. There are various branches of heal
 An individual health insurance plan is a policy purchased by an individual for himself/herself. This health insurance plan covers the medical costs incurred on an individual’s life. This plan, thus, covers the costs for only one individual for a single sum insured. Individual health insurance policy is suitable for single individuals who do not have any dependents. 
 
 2. Family floater health insurance 
-[A family floater health insurance](https://www.gute-krankenkasse.ch/gunstige-familien-versicherung/) covers the entire family in one plan. A family may include policyholders, spouses, dependent children, and dependent parents. The premium is charged on the basis of members covered, all the family members can use the sum insured jointly or independently.
+[A family floater health insurance ](https://www.gute-krankenkasse.ch/gunstige-familien-versicherung/)covers the entire family in one plan. A family may include policyholders, spouses, dependent children, and dependent parents. The premium is charged on the basis of members covered, all the family members can use the sum insured jointly or independently.
 
 3. Group health insurance plan
 A group health insurance plan can be bought by a group for covering its members. Groups like employer-employee groups, trade unions, club members, etc. can avail of a group health plan. A single health insurance policy is issued which is called the master policy. The policy covers all the members in the group under a single sum insured. The premium charges are paid by the group itself or by its members jointly.
