@@ -1,6 +1,6 @@
 ---
 title: Seven Important Factors that Affects Your Health Insurance Premium
-date: 2019-09-27 11:27:00 Z
+date: 2019-09-27 11:29:00 Z
 ---
 
 Health insurance is a medical insurance policy that assures financial coverage for medical expenses when a policyholder is hospitalized. Under the health care law in Switzerland, it is mandatory for all its residents to be covered under a basic health insurance policy. There are various health insurance plans readily available in Switzerland to cater to every aspect of an individual's medical needs. Health insurance policy comes packed with various features that assist an individual in managing expenses during medical emergencies. An individual pays a fixed amount of money called premium in exchange for these features for a certain interval of time to ensure that the policy remains in force. This premium is calculated based on certain important factors in accordance with the specific terms and conditions of the service provider. It is essential for a policyholder to know the factors on which the premium cost of their insurance policy is based upon. Below discussed are the important six factors that affect an individual’s [health insurance premium.](https://www.gute-krankenkasse.ch/ihr-unabhaengiger-versicherungsdienstleister/krankenkassen-pramien-vergleichen/)
