@@ -1,0 +1,18 @@
+---
+title: Understanding Cashless Health Insurance Plan in Switzerland
+date: 2019-10-02 14:02:00 Z
+---
+
+It is compulsory for every resident living in Switzerland to have a basic health insurance plan.  A health insurance policy is a great source of support during medical emergencies. It reduces the financial burden and ensures an easy and peaceful recovery of the policyholder. When an individual purchases a cashless health insurance policy, it facilitates coverage for pre-hospitalization and post-hospitalization. The coverage, however, differs from policy to policy and from provider to provider. 
+
+The selection of buying a health insurance plan is very simple. It starts with knowing your needs. It is very important to evaluate the needs of an individual since health conditions differ from person to person. After evaluating the needs it is advisable to compare different policies, their coverage, and their premiums. Various health insurers have variously diversified plans that offer a wide variety of plans to select from so it is required for an individual to compare different policies and select the best policy which suits the evaluated needs. The process of buying a policy also includes researching the insurance provider. The number of years a company has been in the insurance business is worth considering. For better evaluation of policies and providers, it is also important for an insured to check for the total sum assured, minimum entry age and renewal clauses. 
+
+There are many other advantages of a health insurance policy. It ensures free regular medical checkups, no claim bonus, transportation charges, room rent, and many other benefits. A cashless health insurance plan also provides the benefits of cashless network hospitals. A cashless network hospital functions just like a non-partner hospital. It provides free cashless medical facilities to the policyholder. The insured member can visit the nearest network hospital and avail medical treatments without paying any charges to the hospital. A cashless network hospital also includes benefits like room rent, admission charges, treatment cost and ambulance cost. Another most important thing about the insurance that the insured must check is the efficiency of the claiming process. There are mainly two types of health insurance claim which an individual can choose. 
+
+Cashless claim process
+When the insured individual provides their health insurance details to the respective hospital, the insured person becomes liable for receiving the benefits of the insurance policy. After the discharge of the policyholder, the hospital will forward the medical bills to the insurance providing company. The company will audit the expenses and settle the outstanding payment due to the hospital. This process is hassle-free in nature. The medical bill is settled between the hospital and the insurance company where else insured is not involved in this claiming process.
+
+Reimbursement claim process
+In this claiming process, the insured individual is involved in paying the incurred medical charges after which the medical bills are shared with the insurance company for medical settlement between the insured and the insurance company. The hospital bills would be settled as per the insured sum amount opted by the individual during the time of purchasing the policy. 
+
+Selection of the claiming process depends on the policyholder and the insurer. Mutual agreement between the insured and the insurer enables easy efficiency for claiming funds. The process mentioned above ensures a proper selection of the right cashless health insurance policy in Switzerland. These were some important concepts which a policyholder should know before buying a health insurance plan.
